@@ -1,4 +1,5 @@
-Unlock hidden opportunities on Prolific with our automation tools. Auto join studies while you're away from your PC! 
+Unlock hidden opportunities on Prolific with our automation tools. 
+Auto join studies while you're away from your PC! 
 
 Join our public discord server! https://discord.gg/FvrT2KvD3Y
 
